@@ -20,4 +20,4 @@
 
 平台默认开启隐私模式，无痕浏览更安心。立即点击下方任意链接，畅享无广告、无障碍的高清无码成人观影体验！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/thhh2611/riben155555 ）</span> 
